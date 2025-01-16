@@ -1,0 +1,1 @@
+Prime Industrial Builders is a leader in constructing advanced factories, warehouses, and manufacturing units. We deliver innovative and durable industrial solutions tailored to the needs of businesses. Our team is committed to meeting deadlines, ensuring operational efficiency, and providing world-class infrastructure.
